@@ -1,4 +1,4 @@
-# 
+# VIP bot السكالبينج إعدادات مسبقة for Mac OS | نخبة bot السكالبينج إعدادات مسبقة for PC Windows. Featuring تداول العقود المستقبلية and واجهة برمجة التطبيقات للتبادل اللامركزي — optimized for maximum performance.
 
 
 
